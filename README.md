@@ -1,4 +1,4 @@
-<img width="662" alt="캡처" src="https://github.com/user-attachments/assets/e6d053d7-5200-45c1-a5c6-35da6bafba13 "># -v2
+<img width="662" alt="캡처" src="https://github.com/user-attachments/assets/e6d053d7-5200-45c1-a5c6-35da6bafba13 ">
 <br/>
 
 
